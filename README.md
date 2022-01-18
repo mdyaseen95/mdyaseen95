@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mdyaseen95
-- 🌱 I’m currently learning JAVA
+- 🌱 Software Enthusiastic,Learning is FUN.
 
 
 <!---
